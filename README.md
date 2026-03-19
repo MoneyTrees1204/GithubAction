@@ -8,5 +8,3 @@
 
     A dollar might, turn to a million and we can all rich.
     That's just how I feel.
-
-Done. 
